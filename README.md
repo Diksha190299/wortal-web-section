@@ -1,1 +1,0 @@
-# wortal-web-section
